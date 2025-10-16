@@ -1,5 +1,5 @@
 # 💫 About Me:
-🔭 I’m currently working as a Senior Associate Consultant<br>👯 I’m looking to collaborate Cloud content creation Specially on projects !!<br>💬 If you have a moment, Lets discuss about cloud computing <br>⚡ Fun fact - I fall asleep in seven minutes
+🔭 I’m currently working as a Senior Associate Consultant<br>👯 I’m looking to collaborate Cloud content creation Specially on projects !!<br>💬 If you have a moment, Lets discuss about cloud computing <br>⚡ Fun fact - I fall asleep in seven minutes12
 
 
 ## 🌐 Socials:
